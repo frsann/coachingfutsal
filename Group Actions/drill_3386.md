@@ -1,0 +1,37 @@
+# Drill 3386
+
+**Short description:**
+To train the left-handed player's support to the line 3
+
+**Objectives:**
+TAKING ADVANTAGE OF SPACES CREATED FROM THE 3-LINE
+
+CONTENTS: INTERMEDIATE SELF-RECOGNITION, SMOOTH MOVEMENT, GETTING BEHIND DEFENDERS, ORIENTED CONTROL, SUPPORT AND BREAKAWAY UNMARKING, PASS JUMP, DUALITIES.
+
+**Area (mxm):**
+28x20
+
+**Duration (min):**
+
+
+**Number of players:**
+8+2P
+
+**Materials:**
+
+
+**Progression:**
+3VS3 INTENTAN PROGRESAR Y FINALIZAR REALIZANDO 3 EN LÍNEA Y CON LA AYUDA DE UN ALA ZURDO FIJO.TOQUES LIBRES. NO HAY BANDAS NI CÓRNERS (SACA EL PORTERO DE LA MITAD POR LA QUE HAYA SALIDO EL BALÓN). SI HAY GOL SACA PORTERO DEL EQUIPO ANOTADOR.
+
+**Variations:**
+A FIXED PLAYER CAN END IN OFFENSIVE FIELD, LIMIT NUMBER OF TOUCHES, VARY SPACE, 4VS4 WITHOUT FIXED LEFTY BUT A PLAYER MUST ALWAYS OCCUPY THE LEFT WING SPACE
+
+**Categories:**
+Group Actions - Build up, Group Actions - Finishing, Positional Attack, Positional Attack - Exit Pressing, Real Game - Modified - Modeled
+
+**:**
+
+
+**Images:**
+![](https://www.coachingfutsal.com/\images\73024703-0b34-4b83-8e22-102203363b65_01 PONENCIA 3 EN LÍNEA.jpg)
+

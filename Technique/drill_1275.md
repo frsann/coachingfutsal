@@ -1,0 +1,35 @@
+# Drill 1275
+
+**Short description:**
+28x20. 3v3, pure individual defense.
+
+**Objectives:**
+1v1.
+
+**Area (mxm):**
+28 times 2
+
+**Duration (min):**
+10-12
+
+**Number of players:**
+All the players
+
+**Materials:**
+Bibs, balls, cones
+
+**Progression:**
+Game of 3v3. Players are paired with a player on the opposing team. The players must mark totally individual and they can only defend their partner. Thus there can be no exchanges, no defensive help and no providing defensive cover. When possession is won you must pass to your goalkeeper (to prevent fast attacks).Key Points (Coaching Points)Co-ordination between player who moves to lose their marker and the player with the ball.Earn the back of your opponent.Feints.
+
+**Variations:**
+2 touch (to prevent players dribbling 1v1)Play 4v4
+
+**Categories:**
+Group Actions - Build up, Technique - 1v1, Technique - Control and ball protection, Technique - Marking - Losing your marker, Technique - Passing, Technique - Running with the ball
+
+**:**
+
+
+**Images:**
+![](https://www.coachingfutsal.com/\images\4f3125bf-d236-4669-9da3-bb1d4c302ed8_089.png)
+

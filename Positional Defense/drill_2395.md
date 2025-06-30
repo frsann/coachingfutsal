@@ -1,0 +1,35 @@
+# Drill 2395
+
+**Short description:**
+Source: Sergio Gargelli
+
+**Objectives:**
+First line tilting and defensive rotation
+
+**Area (mxm):**
+40x20
+
+**Duration (min):**
+
+
+**Number of players:**
+10 + 2P
+
+**Materials:**
+
+
+**Progression:**
+2 TEAMS OF 5 PLAYERS + 2 JOKERS WHO PLAY ONLY WITH THE TEAM IN POSSESSION OF THE BALL. THE ATTACKERS CANNOT PLAY IN THE CENTRAL ZONE OF THE FIELD (VOLLEYBALL COURT). DEFENDERS CAN PLAY IN EVERY PART OF THE FIELD. WHEN THE DEFENSE RECOVERS, THE ATTACKERS MUST IMMEDIATELY LEAVE THE CENTRAL ZONE. THE 2 JOKERS PLAY ONLY IN THE CENTRAL ZONE. JOKERS PLAY WITH 2 TOUCHES AND CAN PASS THE BALL TO EACH OTHER ONLY TWICE. JOKERS CAN SCORE GOALS.
+
+**Variations:**
+- CAMBIARE LE DIMENSIONI DELLA ZONA CENTRALE- LIMITE DI TOCCHI PER TUTTI I GIOCATORI- LIMITE DI TEMPO PER CONCLUDERE L'AZIONE
+
+**Categories:**
+Positional Defense, Positional Defense - Pressing
+
+**:**
+
+
+**Images:**
+![](https://www.coachingfutsal.com/\images\99921bac-7f3e-47bb-ab60-190891061b39_Schermata 2020-08-19 alle 23.26.18.png)
+

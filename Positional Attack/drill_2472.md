@@ -1,0 +1,35 @@
+# Drill 2472
+
+**Short description:**
+HEATING - TRANSITION TO PIVOTAL OTHER GOALS: BODY ORIENTATION - PERIPHERAL VISION
+
+**Objectives:**
+
+
+**Area (mxm):**
+40x20
+
+**Duration (min):**
+10
+
+**Number of players:**
+12
+
+**Materials:**
+
+
+**Progression:**
+2 SQUADRE DA 5 GIOCATORI + 1 JOLLY CHE GIOCADIETRO LE LINEE(PIVOT).- SI GIOCA A 2 TOCCHI, 3 TOCCHI SE VIENE DA AVVERSARIO.- OGNI VOLTA CHE UN GIOCATORE PASSA LA PALLA AL PIVOT SIREALIZZA UN PUNTO E QUESTI SI CAMBIA CON IL PIVOT.- IL PASSAGGIO AL PIVOT OBBLIGATORIAMENTE BASSO
+
+**Variations:**
+- VARIANTE 1: PER PASSARE LA PALLA AL PIVOT SI DEVESUP[ERARE LA 1/2 CAMPO- VARIANTE 2: IL PASSAGGIO AL PIVOT SI DEVE REALIZZARE AD 1TOCCO
+
+**Categories:**
+Positional Attack, Warm up - Tactics
+
+**:**
+
+
+**Images:**
+![](https://www.coachingfutsal.com/\images\403deb7b-e5c7-42ff-9404-34875af12ca0_Senza nome.png)
+

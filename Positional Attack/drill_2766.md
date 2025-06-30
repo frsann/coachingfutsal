@@ -1,0 +1,35 @@
+# Drill 2766
+
+**Short description:**
+On coach sign, players from decided area have to quickly recover initial positions for attack / defense.
+
+**Objectives:**
+Quick organization in attack/defense
+
+**Area (mxm):**
+40x20
+
+**Duration (min):**
+10-12
+
+**Number of players:**
+All the players
+
+**Materials:**
+Bibs, balls
+
+**Progression:**
+- 40x20, 3v3 with goalkeepers.- On coach sign, players from decided area have to quickly recover initial positions for attack / defense.- coach passes ball to one of the goalkeepers (areal or ground pass).- than attack starts from this side.
+
+**Variations:**
+- areal or ground pass to the one of the goalkeepers.- change initial position of the players group- reduce time of attack.- change number of players (2v2 or 4v4).
+
+**Categories:**
+Positional Attack, Positional Attack - Exit Pressing
+
+**:**
+
+
+**Images:**
+![](https://www.coachingfutsal.com/\images\f321112a-bf41-4602-9207-5021a1023027_aa.png)
+

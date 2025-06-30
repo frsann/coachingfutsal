@@ -1,0 +1,35 @@
+# Drill 2272
+
+**Short description:**
+Source: Sergio Gargelli
+
+**Objectives:**
+Frontline tilting and defensive rotation
+
+**Area (mxm):**
+40x20
+
+**Duration (min):**
+
+
+**Number of players:**
+10 + 2P
+
+**Materials:**
+
+
+**Progression:**
+2 TEAMS OF 5 PLAYERS + 2 JOKERS WHO ONLY PLAY WITH THE TEAM IN POSSESSION OF THE BALL. THE ATTACKERS CANNOT PLAY IN THE CENTRAL AREA OF THE FIELD (VOLLEYBALL COURT). THE DEFENDERS CAN PLAY IN ANY AREA OF THE FIELD. WHEN THE DEFENSE RECOVERS THE BALL, THE ATTACKERS MUST IMMEDIATELY LEAVE THE CENTRAL AREA. THE 2 JOKERS ONLY PLAY IN THE CENTRAL AREA. THE JOKERS PLAY WITH 2 TOUCHES AND CAN PASS THE BALL BETWEEN THEMSELVES ONLY 2 TIMES. THE JOKERS CAN SCORE GOALS.
+
+**Variations:**
+- CAMBIARE LE DIMENSIONI DELLA ZONA CENTRALE- LIMITE DI TOCCHI PER TUTTI I GIOCATORI- LIMITE DI TEMPO PER CONCLUDERE L'AZIONE
+
+**Categories:**
+Positional Defense, Positional Defense - Pressing
+
+**:**
+
+
+**Images:**
+![](https://www.coachingfutsal.com/\images\430f3a99-8b16-4f77-bf50-05def6d97abb_Schermata 2020-08-19 alle 23.26.18.png)
+

@@ -1,0 +1,37 @@
+# Drill 3385
+
+**Short description:**
+Taken from PONENCIA VAMAR to train LINEA3
+
+**Objectives:**
+COORDINAR MOVIMIENTOS EN LA REALIZACIÓN DEL 3 EN LÍNEA HORIZONTAL Y DIAGONAL.
+
+CONTENIDOS: TOMA DE DECISIONES, ATENCIÓN AMPLIA Y REDUCIDA, RECONOCERSE INTERMEDIO, VENIR RODADO, ABRIR LÍNEAS DE PASE, CONTROLES ORIENTADOS, DESMARQUE DE APOYO Y RUPTURA, SALTO PASE, DUALIDADES.
+
+**Area (mxm):**
+28x20
+
+**Duration (min):**
+
+
+**Number of players:**
+10 + 2P
+
+**Materials:**
+
+
+**Progression:**
+3VS3 INTENTAN PROGRESAR Y FINALIZAR CON LA AYUDA DE DOS COMODINES LATERALES POR EQUIPO INTENTANDO BENEFICIARSE DE LAS VENTAJAS CREADAS POR EL 3 EN LÍNEA. CADA EQUIPO TIENE 1 BALÓN ARRIBA, EL JUGADOR QUE LO POSEA NO PUEDE TOCAR EL BALÓN DE JUEGO PERO PUEDE PARTICIPAR EN LA FORMACIÓN DEL 3 EN LÍNEA.LOS COMODINES PUEDEN ENTRAR A FORMAR EL 3 EN LÍNEA (INTERMEDIO RODADO). HAY BANDAS Y CÓRNERS. SI HAY GOL SACA PORTERO DEL EQUIPO ANOTADOR. TOQUES LIBRES.
+
+**Variations:**
+LIMIT No Touching, Vary Space, 4v4 in Central Zone, The Ball Above Can Only Be Held by Players in the Central Zone
+
+**Categories:**
+Group Actions - Build up, Group Actions - Finishing, Positional Attack, Positional Attack - Exit Pressing, Real Game - Modified - Conditioned
+
+**:**
+
+
+**Images:**
+![](https://www.coachingfutsal.com/\images\08a5db34-9c89-42f1-aa06-733fbb18e431_01 PONENCIA 3 EN LÍNEA.jpg)
+
