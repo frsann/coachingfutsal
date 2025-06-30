@@ -31,9 +31,11 @@ The player with the ball dribbles it in a slalom between the cones with both fee
 
 
 **Images:**
-![](https://www.coachingfutsal.com/\images\56cc5f14-2cb3-4745-ba71-8424aa271971_Dvd.034&#32-&#32CD03.jpg)
+
+![](https://www.coachingfutsal.com/\images\56cc5f14-2cb3-4745-ba71-8424aa271971_Dvd.034%20-%20CD03.jpg)
 
 **Videos:**
-![](https://www.youtube.com/embed/fjcrAgIt2g4)
-![](https://www.youtube.com/embed/rRC5hHDf1ws)
 
+[![](https://img.youtube.com/vi/fjcrAgIt2g4/0.jpg)](https://www.youtube.com/watch?v=fjcrAgIt2g4)
+
+[![](https://img.youtube.com/vi/rRC5hHDf1ws/0.jpg)](https://www.youtube.com/watch?v=rRC5hHDf1ws)
